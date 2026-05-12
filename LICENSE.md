@@ -1,4 +1,4 @@
-#  
+#  best Scripts for jujutsu infinite offers the most advanced jujutsu infinite Script, with private server access and auto-sell. Perfect for dominating
 
 
 
